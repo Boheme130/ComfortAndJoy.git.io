@@ -1,7 +1,7 @@
 ## Comfort an Joy
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/hostedimages/1415536026i/11807131.jpg)
+![avatar](https://static01.nyt.com/images/2020/06/04/fashion/04VIRUS-FIRSTPERSON-BOYFRIEND/04VIRUS-FIRSTPERSON-BOYFRIEND-superJumbo.jpg)
 <br>
 <br>
 
